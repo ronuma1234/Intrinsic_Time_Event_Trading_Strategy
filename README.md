@@ -1,0 +1,1 @@
+# Intrinsic_Time_Event_Trading_Strategy
